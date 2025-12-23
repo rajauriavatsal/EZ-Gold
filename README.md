@@ -1,1 +1,1 @@
-# EZ-Gold
+# EG-Invest
